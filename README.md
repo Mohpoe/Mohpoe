@@ -1,5 +1,5 @@
 **Bismillahirrahmanirrahim**
->_In the name of Allaah, the Most Gracious, the Most Merciful_
+>_In the name of Allah, the Most Gracious, the Most Merciful_
 
 - 👋 Hi, I’m [@Mohpoe](https://github.com/Mohpoe), I’m a muslim from Indonesia
 - 👀 I’m interested in many things, gaming, photography, graphics designer, writing, history, languages, and **programming or coding** as well.
